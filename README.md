@@ -1,1 +1,1 @@
-linquistic school website
+manual router
